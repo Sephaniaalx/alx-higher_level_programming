@@ -1,1 +1,1 @@
-my six pro
+my own  six pro
